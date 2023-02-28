@@ -3,6 +3,7 @@
 * 3 peitos de frango cortados em cubos
 * 3 peitos de frango cortados em cubos
 * 1 dente de alho picado
+* 1 dente de alho picado
 * sal e pimenta a gosto
 * 1 cebola picada
 * 2 colheres (sopa) de maionese
